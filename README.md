@@ -25,7 +25,7 @@ only if you are interested that is. </br>
 INTPs can detect lies very quickly. The energy does not lie. We adopt the ability to sense human energy quickly. Just be honest. </br>
 
 ## INTP Anger
-I’d say that an INTP is much scarier when angry than any other. If you think an INTP isn’t scary when angry, then you haven’t seen an angry INTP.
+I’d say that an INTP is much scarier when angry than any other types. If you think an INTP isn’t scary when angry, then you haven’t seen an angry INTP.
 From my experience as an INTP, I don’t tend to show when I’m angry with expressions. </br>
 I tend to remain completely neutral and expressionless. </br>
 I have great tolerance. But if you get me to my breaking point, you will regret it. </br>
