@@ -32,8 +32,10 @@ I tend to remain completely neutral and expressionless. </br>
 I have great tolerance. But if you get me to my breaking point, you will regret it. </br>
 
 You might have heard about INTP door slam. </br>
-Basically, you become non existent. You can try to talk to me and all I give you is silence. </br>
-That's how INTPs are in their demon mode. For us, it takes deliberate analysis, it takes time to arrive to that decision and if we do that, 
+Basically, you become non existent. People who hurt us or create negativity & stress are cut out of our lives. </br>
+We do have emotional inteligent but we do not feel the need of connect to that particular frequnecy.
+You can try to talk to me and all I give you is silence. </br>
+That's how INTPs are in their demon mode. It takes deliberate analysis, it takes time to arrive to that decision and if we do that, 
 that means we previously cared very deeply about you but you disappointed us big time. </br>
 To get to that point where you no longer exist, whether as an enemy or a friend or even a stranger, you gotta do something really fatal.
 INTPs normally don’t get too emotional, but when you make them angry, they will get "angry". </br>
