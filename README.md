@@ -23,7 +23,10 @@ Normally we disconnect with low frequency and dont even bother to connect to soc
 As great observance we study you more and more until we're ready to let you in.  </br>
 If you can patiently wait, you'll earn yourself a loyal human. We share information at anytime, 
 only if you are interested that is. </br>
-INTPs can detect lies very quickly. The energy does not lie. We adopt the ability to sense human energy quickly. Just be honest. </br>
+
+## Truth seeker
+INTPs can detect lies very quickly. The energy does not lie. We adopt the ability to sense human energy quickly. Just be honest. We no judge </br>
+We all seem to fuel our minds with as much knowledge as possible. We abandoned hookers, food, Materialism and fashion to buy books, visit museums and attend lectures. We find pleasure in developing and improving our inner world and internal systems. 
 
 ## INTP Anger
 I’d say that an INTP is much scarier when angry than any other types. If you think an INTP isn’t scary when angry, then you haven’t seen an angry INTP.
