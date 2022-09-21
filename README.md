@@ -19,7 +19,7 @@ Needs alone time - a lot </br>
 ## Circle
 Normally we disconnect with low frequency and dont even bother to connect to social norm. </br>
 As great observance we study you more and more until we're ready to let you in.  </br>
-If you can patiently wait, you'll earn yourself a loyal human whom we allow to with information we're ready to share anytime, 
+If you can patiently wait, you'll earn yourself a loyal human. We share information at anytime, 
 only if you are interested that is. </br>
 INTPs can detect lies very quickly. The energy does not lie. We adopt the ability to sense human energy quickly. Just be honest. </br>
 
