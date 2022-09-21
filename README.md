@@ -14,7 +14,7 @@ Disregard authority </br>
 Being misunderstood and don't mind about it </br>
 Lies detector </br>
 Small circle </br>
-We respect differences </br>
+Respect differences </br>
 Needs alone time - a lot </br>
 
 ## Circle
