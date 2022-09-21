@@ -9,12 +9,12 @@ Reality is often of only passing interest to the Architect, as we are more inter
 As the title suggest, this personality type want to understand everything in the universe, but one area in particular tends to mystify them: human nature.
 
 ## Trait
-Great observance
-Disregard authority
-Being misunderstood and don't mind about it
-Lies detector
-Small circle
-Needs alone time - a lot
+Great observance </br>
+Disregard authority </br>
+Being misunderstood and don't mind about it </br>
+Lies detector </br>
+Small circle </br>
+Needs alone time - a lot </br>
 
 ## Circle
 Normally we disconnect with low frequency and dont even bother to connect to social norm.
