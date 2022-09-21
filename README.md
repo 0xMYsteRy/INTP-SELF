@@ -15,6 +15,7 @@ Being misunderstood and don't mind about it </br>
 Lies detector </br>
 Small circle </br>
 Respect differences </br>
+Meditation </br>
 Needs alone time - a lot </br>
 
 ## Circle
