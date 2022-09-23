@@ -1,4 +1,4 @@
-# INTP | Logician -  Introverted, Intuitive, Thinking, and Prospecting
+# INTP | Logician -  Introverted, Intuitive, Thinking, Perceiving
 
 ## How to engage with INTP
 We don't bother with small talk. We just don't. </br>
