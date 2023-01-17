@@ -47,23 +47,23 @@ INTPs normally don’t get too emotional, but when you make them angry, they wil
 Welcoming you into their unique world full of mysteries and ideas.
 
 ## The truth about vibration
-1st - Thoughts
+1st - Thoughts </br>
 Every thought emits a frequency out to the universe and that frequency goes back to the source, so in case if you have negative thoughts, discouragement, sadness, anger, fear, it all comes back to you. This is why it is so important that you take care of the quality of your thoughts and learn to cultivate more positive thoughts.
 
-2nd - The Companies
+2nd - The Companies </br>
 The people around you have a direct impact on your vibrational frequency. If you surround yourself with happy, positive, and determined people, you will also enter this vibration. Now if you surround yourself with complainers, medics and pessimists, be careful! Indeed, they can decrease your frequency and therefore prevent you from exploiting the law of attraction in your favor.
-
-3rd - The Music
+ 
+3rd - The Music </br>
 Music is very powerful. If you only listen to music that talks about death, betrayal, sadness, abandonment, all of these will interfere with your vibration. Pay attention to the lyrics of the music you listen to, it could be lowering your vibrational frequency. And remember: you attract exactly what you vibrate into your life.
 
-4th - Things You Watch
+4th - Things You Watch </br>
 When you watch shows that deal with misfortune, death, betrayal, etc. your brain accepts this as reality and releases a whole chemistry in your body, which affects your vibrational frequency. Watch things that do you good and helps you vibrate at a higher frequency.
-5th - The Mood
 
+5th - The Mood </br>
 Whether at home or at work, if you spend a lot of time in a disorganized and dirty environment, it will also affect your vibrational frequency. Improve your surroundings, organize and clean up your environment. Show the universe that you are capable of receiving so much more. Take care of what you already have!
 
-6th - The Word
+6th - The Word </br>
 If you pretend or speak poorly about things and people it affects your vibrational frequency. To maintain your frequency high, it is essential to eliminate the habit of complaining and bad talking about others. So avoid the drama and victimization. Take responsibility for your life choices!
 
-7th - The Gratitude
+7th - The Gratitude </br>
 Gratitude destroy negativty. Practice gratitude daily. Gratitude has a positive effect on your vibrational frequency. This is a habit you should incorporate into your life now. Start giving thanks for everything, for the good things and what you consider bad, give thanks for all the experiences you have experienced. Gratitude opens the door for good things to happen positively in your life
